@@ -1,3 +1,3 @@
 - Introduction 👋 | Hi, I’m Tom Mutaffis - I have worked in technical recruiting / talent acquisition for 10+ years and currently focus on hiring Software Engineers, Data Engineers, and related professional from junior level to architect/principal/staff/manager level. Outside of work I am a Professional Strongman and am married with two kids. I coach youth sports and enjoy traveling and spending time outdoors. 
 - Collaboration | I am always interested in collaborating when it comes to recruiting/hiring, diversity & inclusion, or strength/longevity/fitness.  
-- Contact | www.linkedin.com/in/mutaffis 
+- Contact | email tmutaffis@yahoo.com or connect with me on LinkedIn at www.linkedin.com/in/mutaffis 
